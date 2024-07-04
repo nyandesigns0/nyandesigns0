@@ -1,3 +1,3 @@
 "True Architects 📐 ought to be Polymaths 🦾"
-🖌️Artist | ✏️Architect | 💻Dev |+
-Backstage: youtube.com/@NyanDesigns
+/n 🖌️Artist | ✏️Architect | 💻Dev |+
+/n Backstage: youtube.com/@NyanDesigns
